@@ -204,4 +204,4 @@ For issues and questions:
 
 ---
 
-**Happy monitoring! **
+**Happy monitoring! 🚀**
